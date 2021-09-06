@@ -1,0 +1,1 @@
+the portal opens after the battle and out comes the batman who laughs, an alternate universe batman freom earth-22.
